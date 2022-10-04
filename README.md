@@ -13,3 +13,7 @@
 ## Part 3: Process and Becoming
 
 ---------------
+
+## Part 4: Akashic Records
+
+---------------
